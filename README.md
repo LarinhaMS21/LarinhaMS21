@@ -13,3 +13,5 @@ lara.tavares.souza@escola.pr.gov.br
 @b__lara_
 
 ![](https://media1.tenor.com/m/nIgxrA_9nvgAAAAd/favorite.gif)
+
+![](https://media.tenor.com/o9VcroEJhMYAAAAi/nails-period.gif)
